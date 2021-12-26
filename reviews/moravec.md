@@ -14,3 +14,5 @@
 [Mind Children Youtube](https://www.youtube.com/results?search_query=hans+moravec+mind+children)
 
 [Mind Children Book Reviews](https://www.google.com/search?q=mind+children+hans+moravec+book+reviews&oq=mind+children+hans+moravec+book+reviews&aqs=chrome..69i57.7918j0j7&sourceid=chrome&ie=UTF-8)
+
+* last revised 12/25/2021 
